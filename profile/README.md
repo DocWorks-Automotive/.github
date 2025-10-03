@@ -1,5 +1,7 @@
 ![DocWorks Automotive - The Highest Quality, Since 2021](https://github.com/DocWorks-Automotive/.github/blob/main/docworks%20full%20tag.webp)
 
+## An eclectic group of various personalities, all united by a bond of trust and the insatiable lust for _speed._
+
 # DWA Staff
 - Naomie Aurora - Owner, Concept Designer, 3D Sculptor, Chassis & Powertrain Engineer
   - <img src="https://www.nexusmods.com/favicon.ico" width="32" height="32"> [NexusMods](https://next.nexusmods.com/profile/DoctorPortal)
