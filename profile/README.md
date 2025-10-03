@@ -1,6 +1,6 @@
 ![DocWorks Automotive - The Highest Quality, Since 2021](https://github.com/DocWorks-Automotive/.github/blob/main/docworks%20full%20tag.webp)
 
-## An eclectic group of various personalities, all united by a bond of trust and the insatiable lust for _speed._
+## An eclectic group of various personalities, united by a bond of great trust, companionship and the insatiable lust for _speed._
 
 # DWA Staff
 - Naomie Aurora - Owner, Concept Designer, 3D Sculptor, Chassis & Powertrain Engineer
